@@ -1,2 +1,2 @@
 # choose-the-right-the-answer
-i want monyey plz :::::::
+i want money plz :::::::
